@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on frontend development 
 - 📫 How to reach me via WhatsApp +2348111606303
 - 😄 Pronouns: He
-- ⚡ Hoppies: reading, thinking, experimenting, playing piano.
+- ⚡ Hoppies: reading, thinking, experimenting, playing piano, coding.
 - ✝️ follows the mindset, values, and philosophy of Jesus Christ.
 - 
 <!---
